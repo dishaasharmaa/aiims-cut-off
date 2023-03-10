@@ -1,2 +1,2 @@
 # aiims-cut-off
-Want to know <a href=https://www.pw.live/blogs-neet/how-to-become-a-dermatologist-in-india>How To Become A Dermatologist</a> in India? Here is a complete guide for you. Read the blog for more details and enroll for NEET Coaching.
+Looking for the <a href=https://www.pw.live/blogs-neet/what-will-be-the-aiims-cut-off-for-2023>AIIMS cut-off</a> for 2023? Here are the complete details for you including the previous year's cut off for AIIMS. Enroll now for NEET Batches.
